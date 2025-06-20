@@ -12,3 +12,7 @@ Someone said:
 <ins>Standing on business</ins> 
 
 ~~Strike~~
+
+Young Thung: 
+
+![Funny](thug.png)

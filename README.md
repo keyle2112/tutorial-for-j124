@@ -13,6 +13,6 @@ Someone said:
 
 ~~Strike~~
 
-Young Thung: 
+Young Thug: 
 
 ![Funny](thug.jpeg)

@@ -15,4 +15,4 @@ Someone said:
 
 Young Thung: 
 
-![Funny](thug.png)
+![Funny](thug.jpeg)
